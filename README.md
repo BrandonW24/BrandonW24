@@ -9,7 +9,7 @@ In my free time I enjoy:
 - 🧗‍♂️ **Rock climbing**
 - 🏗️ **3d printing**
 - 🍜 Eating **really good ramen**
-- 🎮 **Designing and developing video games** in my free time as a hobby!
+- 🎮 **Designing and developing video games**  as a hobby!
 
 ---
 
